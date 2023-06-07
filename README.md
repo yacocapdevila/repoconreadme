@@ -1,3 +1,3 @@
 # repoconreadme
 nuevo repositorio con readme
-MAS BIEN, VCIEJITA!
+MAS BIEN, VIEJITA!
